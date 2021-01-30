@@ -1,0 +1,1 @@
+ADAM for correctly testing this bot please contact me ProDev#6969 I have all API key's ready if you run it yourself features like AI, Dashboard, Etc wont work. And those are the main cool features of the bot. so please contact me.
